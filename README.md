@@ -8,3 +8,5 @@ A Data Scientist with over 9 years experience in data modeling, corporate financ
 
 📫 How to reach me: amalia.temneanu@gmail.com
 
+⚡ I have a strong interest in psychology and brain rewiring
+
